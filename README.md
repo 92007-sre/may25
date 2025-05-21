@@ -1,3 +1,3 @@
 # may25
 Bangalore is cool
-blore is love
+blr is loveee
